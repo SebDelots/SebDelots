@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **OPT project**
 
-- 📫 How to reach me **Sebastien.DELOTS**
+- 📫 How to reach me **Sebastien.DELOTS@opt.nc**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left"> NO I'm an hermit!
